@@ -3,7 +3,7 @@
 ## Members
 - Pacleb, Nikko Adrian (Leader)
 - Member 1 (Jezreel A. Batara)
-- Member 2 (Edit)
+- Member 2 (Jhosep Manahan)
 - Member 3 (Edit)
 - Member 4 (Edit)
 
